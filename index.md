@@ -8,3 +8,5 @@ Wing-Chun-Meister Ip Man lebt in der chinesischen Stadt Fushan. Doch als die Jap
 * wohlhabender Kampfkünstler
 * Meister der Kampfkunst Wing Chun
 * bekanntester Schüler der Kampfkünstler und Filmemacher Bruce Lee 
+
+> ENTSPANNE DICH UND LÖSE DEINEN GEIST.
