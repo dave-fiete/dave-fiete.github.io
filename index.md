@@ -10,3 +10,5 @@ Wing-Chun-Meister Ip Man lebt in der chinesischen Stadt Fushan. Doch als die Jap
 * bekanntester Schüler der Kampfkünstler und Filmemacher Bruce Lee 
 
 > ENTSPANNE DICH UND LÖSE DEINEN GEIST.
+
+<img src="https://ferencrauschenbach.de/wp-content/uploads/2016/07/16_07_26-10-Motivationsspr%C3%BCche-Martial-Arts.jpg" />
